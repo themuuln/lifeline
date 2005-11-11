@@ -1,1 +1,1 @@
-# I just born today :)
+# I just born today.
